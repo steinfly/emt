@@ -1,1 +1,1 @@
-good man has good luck
+good man has good luck whole life.
